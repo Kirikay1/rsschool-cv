@@ -1,3 +1,3 @@
-# Berzegov Maksim
+# Berzegov Maxim
 
 ## Contacts
